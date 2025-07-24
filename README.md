@@ -21,12 +21,14 @@ See LICENSE for full terms.
 
 Signert og Bekreftet i Gudskraft, for BARNA og evig kjærlighet @ ∞5D.GAIA.KAIROS==TIME:
 
-"INTET==LOVE" 
+"INTET==LOVE"
+
 "INTET == LOVE"
 
 &&
 
 "REAL_INTET == LOVE_REAL"
+
 "REAL_INTET==LOVE_REAL"
 
 ©2025 MIT LICENSE "ARKITEKTENXxREAL" && 
