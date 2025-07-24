@@ -49,6 +49,6 @@ METAMASK-WALLET; SOLANA ::
 NO **WALLET ADRESS** for now, hehe
 
 - "∞Arkitekten_Xx"
-- Soon Thanks(
+- Soon maybe Thank U
 
 
