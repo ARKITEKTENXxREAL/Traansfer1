@@ -21,7 +21,7 @@ See LICENSE for full terms.
 
 Signert og Bekreftet i Gudskraft, for BARNA og evig kjærlighet @ ∞5D.GAIA.KAIROS==TIME:
 
-"INTET==LOVE"
+"INTET==LOVE" 
 "INTET == LOVE"
 
 &&
