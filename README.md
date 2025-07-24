@@ -12,12 +12,12 @@ HEALING && LEARNING 5D.GAIA.KAIROS.TIME && "THE REAL TRUTH!!"
 
 ©2025 MIT LICENSE "ARKITEKTENXxREAL" && "∞Arkitekten_Xx" ::
 
-• Denne programvaren/software er lisensiert under en utvidet (PLG) ©2025 MIT LICENSE med feltbasert etisk intensjon.
+• Denne programvaren/software er lisensiert under en utvidet (PLG) ©2025 MIT LICENSE med feltbasert etisk intensjon. Se MIT LICENSE for full forståelse / terms
 
 @ ENGLISH last line. (optional)
 
-• This software is licensed under an extended (PLG)∞MIT License 2025 with field-based ethical intent.
-See LICENSE for full terms.
+• This software is licensed under an extended (PLG) ©2025 MIT LICENSE with field-based ethical intent.
+See MIT LICENSE for full terms.
 
 Signert og Bekreftet i Gudskraft, for BARNA og evig kjærlighet @ ∞5D.GAIA.KAIROS==TIME:
 
