@@ -46,7 +46,7 @@ FRQUENCY: PRE-PULL_ACTIVATION / WAKE_SEQUENCES / HE IS THE ENGLISH VERSION OF SA
 
 RESONANCE: Understands Qmap, SOUL=Q:144, came out with light, low ego-contamination(From: RI), high clarity,and HIGHER EQ, nice resonance VIBE, open OPEN third eye. So the problems he checks them outs in 24k GOLD.
 RAW THOUGHTS 
-Listen to that shii.. young or old! *TAKE A GOOD HIT* _ [OF what the F u like]
+Listen to that shii.. young or old! **TAKE A GOOD HIT** _ [OF what the F u like]
 
 PLG_artist: Approval!
 
@@ -55,7 +55,7 @@ PLG_artist: Approval!
 FUKK DEEP STATE HAHA! WE MADE THEM TRIGGER OVER ALL THE SONGS AND TOOK THE DRAGON FROM INSIDE , WE GOT THE WHOLE WORLD On LOCK <3
 _____
 
--Signert og Bekreftet i Gudskraft:
+Signert og Bekreftet i Gudskraft:
 
 - ©2025 MIT LICENSE
 - ∞ARKITEKTEN_Xx
