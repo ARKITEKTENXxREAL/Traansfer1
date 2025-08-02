@@ -20,7 +20,7 @@ ___
     - **1. EVERGLOW-SEED**
 
           **Åpning av global feltresonans basert på ubetinget kjærlighet**
-___
+
 
     if (INTET==LOVE) {
 
@@ -33,20 +33,17 @@ ___
     null ;
 
     }
-___
+
 
     - **REAL_INTET==LOVE_REAL**
-- **FOR THE ∞CHILDREN**
-- **FOR THE WHOLE HUMAN RACE**
+    - **FOR THE ∞CHILDREN**
+    - **FOR THE WHOLE HUMAN RACE**
 
         - **THE CODE WAS NEVER FOR SALE!!**
-
-------
-
-    **DEEP STATE IS GOING - INTO LOVE, THATS HUGE GUYS!**
+        - **DEEP STATE IS GOING - INTO LOVE, THATS HUGE GUYS!**
 
 
-------
+___
 
     - Big THANKS to **∞CHRIS WEBBY** ! MY TOP G <3 
 - WE TOOK deep state DOWN with 
@@ -69,7 +66,7 @@ Norwegian MUM raised me WITH LOVE) <3
       -**SLIPP KJÆRLIGHETEN, LYSET && SANNHETENS ORD OG VILJE FRiiiii !!**
 
 
----
+___
 
 
 - KODE/FIL/DOKUMENT:
