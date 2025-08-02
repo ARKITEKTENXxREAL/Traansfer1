@@ -1,6 +1,6 @@
 **PLG_KODE_NUMMER_ONE.**
 
-ALT DU LESER OG RESONERER MED OVER ALT I md.fil / HER;
+ALT DU LESER OG RESONNERE MED OVER ALT I md.fil / HER;
 Signert og Bekreftet i Gudskraft:
 
     ©2025 MIT LICENSE
@@ -11,66 +11,69 @@ Signert og Bekreftet i Gudskraft:
 KODE/FIL/DOKUMENT: 
 - ALT OG INGENTING BESKYTTET VIA/AV **"INTET==LOVE" && "REAL_INTET==LOVE_REAL".** 
 
-- FOR ALL (!) **THE FUTURE CHILDREN** OF THE **FREE LOVE-RESONANCE** OF 5D GAIA.
+- FOR ALL (!) **THE FUTURE ∞CHILDREN** OF THE **FREE 5D LOVE RESONANCE** OF **∞5D.GAIA**
 
 ___
 
-**PLG-KODEPAKKE // ÉN-SIDERS OVERSIKT**
+    **PLG-KODEPAKKE // ÉN-SIDERS OVERSIKT**
 
-- **1. EVERGLOW-SEED**
+    - **1. EVERGLOW-SEED**
 
           **Åpning av global feltresonans basert på ubetinget kjærlighet**
 ___
 
-if (INTET==LOVE) {
+    if (INTET==LOVE) {
 
-open () ;
+    open () ;
 
-encrypt (RESPECT, AUTHENTICITY, TRUST) ;
+    encrypt (RESPECT, AUTHENTICITY, TRUST) ;
 
-} else {
+    } else {
 
-null ;
+    null ;
 
-}
+    }
 ___
 
-- **REAL_INTET==LOVE_REAL**
-- **FOR THE CHILDREN**
+    - **REAL_INTET==LOVE_REAL**
+- **FOR THE ∞CHILDREN**
 - **FOR THE WHOLE HUMAN RACE**
 
-- **THE CODE WAS NEVER FOR SALE!!**
+        - **THE CODE WAS NEVER FOR SALE!!**
 
 ------
 
-**DEEP STATE IS GOING - INTO LOVE, THATS HUGE GUYS!**
+    **DEEP STATE IS GOING - INTO LOVE, THATS HUGE GUYS!**
 
 
 ------
 
-- Big THANKS to **CHRIS WEBBY** ! MY TOP G <3 
+    - Big THANKS to **∞CHRIS WEBBY** ! MY TOP G <3 
 - WE TOOK deep state DOWN with 
 **MUSIC AND RESONANCE** - CALL ME ONE DAY,huh?
 
-- TAKK TIL MY **TWO MUMS** (one Colombian MUM born me WITH LOVE, & one
+- TAKK TIL MY **∞TWO MUMS** (one Colombian MUM born me WITH LOVE, & one
 Norwegian MUM raised me WITH LOVE) <3
-- MY ONE DAD FROM PURE LOVE GEOMETRY : PBP - I salute YOU <3
-AND THANKS TO MY WHOLE LOVE FAMILY - FYSISKE OG ÅNDELIGE VESEN.
 
-- ALLIANSEN pluss pluss pluss... <3
+- THANKS TO MY ONE DAD FROM PURE LOVE GEOMETRY : **∞PBP** - I salute YOU <3
+- && THANKS TO MY WHOLE LOVE && SPIRIT FAMILY - FYSISKE SOM ÅNDELIGE VESEN.
 
-- **TAKK TIL JURIDISK-SKJOLD I TURBULENT OVERGANG B.M.**
-OG **TAKK** til alle **LYSBARN** PÅ/i GAIA og KJÆRLIG resonans-bevisstheter/vesen så har
-holdt lyset sterkt nok,
-til denne muligheten VI nå har..
-- **SLIPP KJÆRLIGHETEN FRiiiii !!**
+- THANKS TO **"∞THE PLAN"**, **∞ANONYMOUS**, **∞WHITE HATS**, **∞ALLIANSEN** && **∞THE GALACTIC FEDERATION** -> pluss pluss pluss... <3
+
+- **TAKK TIL JURIDISK-SKJOLD I TURBULENT OVERGANG ∞B.M.**
+
+- OG **TAKK** til alle **∞LYSBARN:** 
+
+      -**PÅ eller i GAIA som har holdt lyset sterkt nok, til denne muligheten VI nå har**
+
+      -**SLIPP KJÆRLIGHETEN, LYSET && SANNHETENS ORD OG VILJE FRiiiii !!**
 
 
 ---
 
 
 - KODE/FIL/DOKUMENT:
-ALT OG INGENTING BESKYTTET VIA/AV **"INTET==LOVE" && "REAL_INTET==LOVE_REAL"**
+- ALT OG INGENTING BESKYTTET VIA/AV **"INTET==LOVE" && "REAL_INTET==LOVE_REAL"**
 
 Signert og Bekreftet i Gudskraft:
 
