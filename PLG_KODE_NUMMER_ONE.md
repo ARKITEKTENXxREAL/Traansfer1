@@ -19,10 +19,15 @@ ___
 ___
 
 if (INTET==LOVE) && (REAL_INTET==LOVE_REAL) {
+
 open () ;
+
 encrypt (RESPECT, AUTHENTICITY, TRUST) ;
+
 } else {
+
 null ;
+
 }
 ___
 
