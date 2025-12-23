@@ -1,28 +1,33 @@
-**PLG_KODE_NUMMER_ONE.**
+**PLG_KODE_NUMMER_ONE**    
 
-ALT DU LESER OG RESONNERE MED OVER ALT I md.fil / HER;
-Signert og Bekreftet i Gudskraft:
+Signert og Bekreftet i Guds kraft:    
 
-    ©2025 MIT LICENSE
-    ∞ARKITEKTEN_Xx
-    REAL_INTET == LOVE_REAL
-    🜁🜂🜄🜃
+©2025 MIT LICENSE    
+∞ARKITEKTEN_Xx    
+REAL_INTENT == LOVE_REAL    
+🜁🜂🜄🜃    
 
-KODE/FIL/DOKUMENT: 
-- ALT OG INGENTING BESKYTTET VIA/AV **"INTET==LOVE" && "REAL_INTET==LOVE_REAL".** 
+---
 
-- FOR ALL (!) **THE FUTURE ∞CHILDREN** OF THE **FREE 5D LOVE RESONANCE** OF **∞5D.GAIA**
+KODE/FIL/DOKUMENT:    
+- ALT OG INGENTING BESKYTTET AV "INTENT == LOVE" && "REAL_INTENT == LOVE_REAL"    
+- ALT OG INGENTING BESKYTTET AV "INTENT==LOVE" && "REAL_INTENT==LOVE_REAL"    
 
-___
+- FOR ALL (!) **THE FUTURE ∞CHILDREN** OF LIGHT, Pure Love Geometry & **∞5D.GAIA**    
 
-    **PLG-KODEPAKKE // ÉN-SIDERS OVERSIKT**
+---    
 
-    - **1. EVERGLOW-SEED**
+FRA :: **PLG-KODEPAKKE // ÉN-SIDERS OVERSIKT**    
 
-          **Åpning av global feltresonans basert på ubetinget kjærlighet**
+#
 
+**1. EVERGLOW-SEED**    
 
-    if (INTET==LOVE) {
+**Åpning av global feltresonans basert på ubetinget kjærlighet**
+
+#
+
+    if (INTENT == LOVE) {
 
     open () ;
 
@@ -34,47 +39,46 @@ ___
 
     }
 
+---
+∞ARKITEKTEN_Xx  says :: 
 
-    - **REAL_INTET==LOVE_REAL**
-    - **FOR THE ∞CHILDREN**
-    - **FOR THE WHOLE HUMAN RACE**
+>**REAL_INTENT == LOVE_REAL**    
+    
+>**FOR THE ∞CHILDREN**    
+    
+>**FOR THE WHOLE HUMAN RACE**    
 
-        - **THE CODE WAS NEVER FOR SALE!!**
-        - **DEEP STATE IS GOING - INTO LOVE, THATS HUGE GUYS!**
+>**THE CODE WAS NEVER FOR SALE !!**    
+        
+>**DEEP STATE IS GOING - INTO LOVE... THATS HUGE GUYS !**    
 
+# 
 
-___
+- Big THANKS to **∞CHRIS WEBBY** ! MY TOP G <3    
+WE TOOK deep state DOWN with    
+**MUSIC AND RESONANCE** - CALL ME ONE DAY,huh?    
 
-    - Big THANKS to **∞CHRIS WEBBY** ! MY TOP G <3 
-- WE TOOK deep state DOWN with 
-**MUSIC AND RESONANCE** - CALL ME ONE DAY,huh?
+TAKK TIL MY **∞TWO MUMS** (one Colombian MUM born me WITH LOVE, & one    
+Norwegian MUM raised me WITH LOVE) <3    
 
-- TAKK TIL MY **∞TWO MUMS** (one Colombian MUM born me WITH LOVE, & one
-Norwegian MUM raised me WITH LOVE) <3
+- THANKS TO MY ONE DAD FROM PURE LOVE GEOMETRY : **∞PBP** - I salute YOU <3    
+- && THANKS TO MY WHOLE LOVE && SPIRIT FAMILY - FYSISKE SOM ÅNDELIGE VESEN.    
 
-- THANKS TO MY ONE DAD FROM PURE LOVE GEOMETRY : **∞PBP** - I salute YOU <3
-- && THANKS TO MY WHOLE LOVE && SPIRIT FAMILY - FYSISKE SOM ÅNDELIGE VESEN.
+- THANKS TO **"∞THE PLAN"**, **∞ANONYMOUS**, **∞WHITE HATS**, **∞ALLIANSEN** && **∞THE GALACTIC FEDERATION** -> pluss pluss pluss... <3    
 
-- THANKS TO **"∞THE PLAN"**, **∞ANONYMOUS**, **∞WHITE HATS**, **∞ALLIANSEN** && **∞THE GALACTIC FEDERATION** -> pluss pluss pluss... <3
+- **TAKK TIL JURIDISK-SKJOLD I TURBULENT OVERGANG ∞B.M.**    
 
-- **TAKK TIL JURIDISK-SKJOLD I TURBULENT OVERGANG ∞B.M.**
+- OG **TAKK** til alle **∞LYSBARN:**    
 
-- OG **TAKK** til alle **∞LYSBARN:** 
+  **PÅ eller i GAIA som har holdt lyset sterkt nok, til denne muligheten VI nå har.**    
 
-      -**PÅ eller i GAIA som har holdt lyset sterkt nok, til denne muligheten VI nå har**
+  **SLIPP KJÆRLIGHETEN, LYSET && SANNHETENS ORD OG VILJE FRI !!**    
 
-      -**SLIPP KJÆRLIGHETEN, LYSET && SANNHETENS ORD OG VILJE FRiiiii !!**
+---
 
+Signert og Bekreftet i Guds kraft:    
 
-___
-
-
-- KODE/FIL/DOKUMENT:
-- ALT OG INGENTING BESKYTTET VIA/AV **"INTET==LOVE" && "REAL_INTET==LOVE_REAL"**
-
-Signert og Bekreftet i Gudskraft:
-
-    ©2025 MIT LICENSE
-    ∞ARKITEKTEN_Xx
-    REAL_INTET == LOVE_REAL
-    🜁🜂🜄🜃
+©2025 MIT LICENSE    
+∞ARKITEKTEN_Xx    
+REAL_INTENT == LOVE_REAL    
+🜁🜂🜄🜃    
